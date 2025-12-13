@@ -23,4 +23,4 @@ Làm rõ: đã bao gồm PCCC/VAT chưa, phí quản lý, thời hạn thuê t�
 
 Chi tiết nhà xưởng phù hợp cho FDI tại VSIP 1:
 
-👉 https://www.tongkhoxuong.com/cho-thue-nha-xuong-2513m2-tai-kcn-thuan-an/
+👉 [https://www.tongkhoxuong.com/cho-thue-nha-xuong-2513m2-tai-kcn-thuan-an/](url)
